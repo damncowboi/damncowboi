@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @damncowboi
+- 👀 I’m interested in games and BIM
+- 🌱 I’m currently learning engineering
